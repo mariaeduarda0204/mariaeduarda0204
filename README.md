@@ -1,6 +1,6 @@
 - Olá,meu nome é Maria Eduarda Dos Santos.
 - Eu estudo no Colégio Estadual Doutor Generoso Marques,estou no 1º ano A
--Espaço usado para compartilhamento das aulas de pensamento Computacional
+- Espaço usado para compartilhamento das aulas de pensamento Computacional
 - Gosto de dormir😴
 - gosto da praia🏖️
 -gosto de mecher no celular🥑
